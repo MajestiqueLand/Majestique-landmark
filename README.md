@@ -1,0 +1,2 @@
+# Majestique-landmark
+Majestique began its existence as a textile company, growing to collectively measure over 3 lakh sq. ft. in all major cities of Maharashtra. As more of the family got incorporated into the business, the company expanded into the real estate sector, starting residential projects in some areas of Pune. With steady success, the company entered into the Construction and Development industry on a full-scale.
